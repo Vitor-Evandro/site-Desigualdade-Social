@@ -1,2 +1,2 @@
 # site-Desigualdade-Social
- o mu site é muito lgal
+ o meu site fala sobre a desigualdade social que o nosso mundo apresenta hoje em dia 	&#127758;
