@@ -1,7 +1,7 @@
 # site-Desigualdade-Social
  o meu site fala sobre a Desigualdade Social que o nosso mundo apresenta hoje em dia 	&#127758;
 
-### 1 página: A primeira página fala um pouco sobre a Desigualdade Social
+### 1 página: A primeira página fala um pouco sobre a Desigualdade Social eum pouco mais sobre outras coisinhas &#129299;
 
 ### 2 página: A segunda página fala mais sobre a Desigualdade Social do nosso mundo e isso nos afeta muito
 e isso não deveria aconteçer por que todas as pessoas deveriam ter as mesmas oportunidades de vida que todos
